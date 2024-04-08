@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Bella from China,you can also call me Guo.
+- 👀 I’m interested in learning foreign languages,travelling,playing basketball and music.
+- 🌱 I’m currently learning Korean and Japanese,though still at a very basic stage.
+- 💞️ I’m looking to make friends with you guys from all over the world.
+- 📫 I'm will be very happy if I have the opportunity to teach you Chinese.
+- 😄 You can send messages to me if you have any question,I will be glad to help you.
+- ☺️☺️☺️☺️
